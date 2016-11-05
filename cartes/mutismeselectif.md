@@ -9,18 +9,18 @@ Je suis sur le spectre de l'autisme et de nombreuses situations provoquent chez 
 Parmi les déclencheurs potentiels :
 - présence d'inconnus
 - présence de nombreuses personnes
-- hyperstimulation sensorielle (son, lumière, odeur...)
-- stigmatisation, propos jugeants, culpabilisation, injonctions
-- violences verbales, physiques ou gestuelles en général
+- hyperstimulation auditive (brouhaha, haussement de ton, fond sonore...), visuelle (lumière, mouvements), olfactive
+- propos jugeant, regard insistant, stigmatisation, culpabilisation, injonction
+- violences verbales, physiques ou gestuelles
 - un changement ou un comportement inattendu
 - tout comportement ou toute situation m'évoquant une menace immédiate ou potentielle ou un traumatisme
 
-Pour m'aider à quitter cet état émotionnel et non l'empirer, vous pouvez :
+Pour m'aider à quitter cet état émotionnel ou éviter de l'empirer, vous pouvez :
 - m'épargner autant que possible les déclencheurs précédents
 - si possible m'emmener me reposer dans un lieu calme, à l'abri des regards, ni trop lumineux ni trop sombre
 - ne pas attendre de réponse de ma part
 - si vraiment une réponse de ma part est nécessaire me donner les moyens de communiquer par écrit
-- parler doucement et lentement (ne pas m'infantiliser svp)
+- parler doucement et lentement sans m'infantiliser
 - communiquer à l'aide de phrases courtes et claires (pas d'ironie ou de sous-entendus) et m'expliciter vos intentions à mon égard
 - ne pas vous vexer si ça ne suffit pas à me faire me sentir mieux. J'ai souvent besoin de temps pour rétablir mon équilibre intérieur.
 
