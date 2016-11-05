@@ -4,7 +4,7 @@
 
 *Tourner la carte pour en savoir plus*
 
-Je suis sur le spectre de l'autisme, et de nombreuses situations me mettent dans un état émotionnel lors duquel parler devient extrêmement éprouvant voire impossible; on appelle cela le mutisme sélectif.
+Je suis sur le spectre de l'autisme et de nombreuses situations provoquent chez moi un état de sidération lors duquel parler devient extrêmement éprouvant voire impossible; on appelle cela le mutisme sélectif.
 
 Parmi les déclencheurs potentiels :
 - présence d'inconnus
@@ -12,6 +12,7 @@ Parmi les déclencheurs potentiels :
 - hyperstimulation sensorielle (son, lumière, odeur...)
 - stigmatisation, propos jugeants, culpabilisation, injonctions
 - violences verbales, physiques ou gestuelles en général
+- un changement ou un comportement inattendu
 - tout comportement ou toute situation m'évoquant une menace immédiate ou potentielle ou un traumatisme
 
 Pour m'aider à quitter cet état émotionnel et non l'empirer, vous pouvez :
