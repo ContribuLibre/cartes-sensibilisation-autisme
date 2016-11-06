@@ -1,8 +1,10 @@
 ![Muet](https://image.freepik.com/free-icon/mute-emoticon-square-face_318-58636.jpg)
 
-## Je suis actuellement dans l'incapacité de parler. Merci de respecter cela.
+## I am presently unable to speak.
 
-*Tourner la carte pour en savoir plus*
+*Turn the card*
+
+I am on the autism spectrum and many situations
 
 Je suis sur le spectre de l'autisme et de nombreuses situations provoquent chez moi un état de sidération lors duquel parler devient extrêmement éprouvant voire impossible; on appelle cela le mutisme sélectif.
 
